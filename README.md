@@ -1,1 +1,1 @@
-![Screenshot from 2024-05-07 17-56-02](https://github.com/SamTG1/Disney-clone-TG/assets/113979052/df3bf31d-5e92-4d26-bd4e-8d6d44a1f3ad)
+![project](https://github.com/SamTG1/Disney-clone-TG/assets/113979052/28451928-7937-4afc-a291-c93b2b75a1f5)
